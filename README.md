@@ -1,1 +1,1 @@
-# Japanese_nursing_terms_of_service
+# 利用規約
